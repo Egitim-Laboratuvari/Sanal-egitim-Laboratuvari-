@@ -1,1 +1,1 @@
-# Sanal-retim-Laboratuvar-
+# Sanal-Eğitim-Laboratuvar-
